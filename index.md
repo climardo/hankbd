@@ -10,6 +10,6 @@
 You're chipping in $250 to cover food and drinks for the late afternoon bbq and pre-game, transportation via a limo bus to barCode and a table and bottle service at [barCode](https://www.barcodenj.com/faq).
 
 # when
-Please pay by Friday, July 1 or let me know how you will be paying by this date. [Text me](sms:+17326187858)
+Please chip in by Friday, July 1 or let me know how you will be chipping in by this date. [Text me](sms:+17326187858)
 
 <script src="https://kit.fontawesome.com/bf6c3ce2c2.js" crossorigin="anonymous"></script>
